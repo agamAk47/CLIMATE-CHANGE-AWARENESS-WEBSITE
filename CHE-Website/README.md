@@ -1,1 +1,0 @@
-# Renewable-Resource-Management-CHE110
